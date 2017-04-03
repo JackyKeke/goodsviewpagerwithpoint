@@ -6,4 +6,3 @@
 
 ![Screenshot_20170403-173215.png](C:\Users\Administrator\Desktop\Screenshot_20170403-173215.png)
 
-![Screenshot_20170403-173218.png](C:\Users\Administrator\Desktop\Screenshot_20170403-173218.png)
